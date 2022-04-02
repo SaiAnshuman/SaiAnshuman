@@ -2,7 +2,7 @@
 - 👀 I’m interested in Space Research
 - 🌱 I’m currently learning Science,Maths,Guitar, & a bit of Advanced Coding
 - 💞️ I’m looking to collaborate on space game making
-- 📫 How to reach me contact my id on discord : Galen Marek(StarKiller)#7708  . or twitter : @WSkele673
+- 📫 How to reach me contact my id on twitter : @WSkele673
                                                                                                              
 
 <!---
